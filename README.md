@@ -1,7 +1,7 @@
 <div align="center"> <img src=https://64.media.tumblr.com/831793f1e1c3dec2de96382472cd9f63/85ffa3ea44a449a2-74/s250x400/10fb30076de98ce1c7e84f4a543a090e9b5dbddb.gifv>
 </div> <div align="center"> frankie/beau — ask 4 prns ₍ᐢ..ᐢ₎ </div>
 </div> <div align="center"> ╰┈ 𝟐𝟏 — 11.1.03
-</div> <div align="center"> 𝗲𝗻𝗴 𝗼𝗻𝗹𝘆‹𝟹
+</div> <div align="center"> 𝐞𝐧𝐠 + 𝐝𝐞𝐮 ‹𝟹
 <div align="center">
      <a href="https://steamcommunity.com/id/loveliestlamb/"> add me on 𝘀𝘁𝗲𝗮𝗺 </a>
 </div>
