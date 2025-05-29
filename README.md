@@ -6,7 +6,7 @@
      <a href="https://steamcommunity.com/id/loveliestlamb/"> add me on 𝘀𝘁𝗲𝗮𝗺 </a>
 </div>
 <div align="center">
-     <a href="https://troopereds.straw.page/">go doodle!</a>
+     <a href="https://sensitivefreak.straw.page/">go doodle!</a>
 </div>
 <div align="center">
      <a href="https://letterboxd.com/hannibeaul//">or see my 𝐟𝐚𝐯𝐬!</a>
